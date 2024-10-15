@@ -2,49 +2,46 @@ testimonials:
   - avatar: /images/admin/avatar1.png
     name: Deni
     message: >-
-      Layanan dari kubah.bangunan.co hebat dengan kubah yang berkualitas dan
-      pemasangan yang cepat dan rapi.
+      Layanan dari kubah.bangunan.co memuaskan dengan kubah yang handal dan
+      pemasangan yang efisien dan rapi.
     response: Kami sangat menghargai kepercayaan Anda
     rating: 5
   - avatar: /images/admin/avatar2.png
-    name: Lina
+    name: Ayu
     message: >-
       Saya sangat puas dengan bantuan dari kubah.bangunan.co dalam memilih kubah
-      yang cocok untuk masjid kami.
-    response: >-
-      Kami sangat menghargai ulasan Anda. Senang mendengar bahwa Anda puas
-      dengan kubah masjid dari kami.
+      yang tepat untuk masjid kami.
+    response: Terima kasih atas ulasannya, kami senang dapat memenuhi harapan Anda.
     rating: 5
   - avatar: /images/admin/avatar3.png
-    name: Ali
+    name: Bayu
     message: >-
-      Produk kubah GRC dari kubah.bangunan.co sangat berkualitas dan cocok untuk
-      proyek masjid di lokasi saya. Proses pembelian dan pengirimannya juga
-      aman.
+      Saya sangat puas dengan kubah GRC dari kubah.bangunan.co. Proses pembelian
+      dan pengirimannya mudah dan hasilnya luar biasa.
     response: Kami sangat senang mendengar bahwa Anda puas dengan hasil kubah dari kami.
     rating: 5
   - avatar: /images/admin/avatar4.png
-    name: Gilang
+    name: Ari
     message: >-
-      Saya sangat puas dengan kubah beton dari kubah.bangunan.co. Mutu kubahnya
-      sangat baik dan tahan lama untuk konstruksi masjid kami.
+      Saya senang dengan kubah beton dari kubah.bangunan.co. Kualitas kubahnya
+      sangat baik dan tahan lama untuk proyek masjid kami.
     response: >-
-      Kami sangat menghargai kepercayaan Anda. Terima kasih sudah memilih
-      layanan kami.
+      Senang mendengar Anda puas dengan kubah kami. Terima kasih atas pilihan
+      Anda!
     rating: 5
   - avatar: /images/admin/avatar5.png
-    name: Ayu
+    name: Lina
     message: >-
-      Pelayanan kubah.bangunan.co terbaik. Kubah GRC yang saya dapatkan sangat
-      berkualitas dan sesuai dengan rencana saya.
+      Pelayanan kubah.bangunan.co luar biasa. Kubah GRC yang saya dapatkan
+      handal dan sesuai dengan ekspektasi saya.
     response: >-
       Kami sangat menghargai ulasan Anda. Terima kasih telah mempercayakan
       proyek Anda kepada kami!
     rating: 5
   - avatar: /images/admin/avatar6.png
-    name: Rio
+    name: Benny
     message: >-
-      Kubah masjid dari kubah.bangunan.co sangat sesuai dengan kebutuhan proyek
+      Kubah masjid dari kubah.bangunan.co sangat tepat dengan kebutuhan proyek
       masjid kami. Proses pengirimannya cepat dan bersih.
     response: >-
       Terima kasih telah mempercayakan proyek Anda kepada kami. Kami senang Anda
