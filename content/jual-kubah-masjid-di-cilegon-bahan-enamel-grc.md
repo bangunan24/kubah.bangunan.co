@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Cilegon [Bahan Enamel, GRC]"
-date: "2024-06-26"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Cilegon [Bahan Enamel, GRC]. Jika anda sedang mencari Jual Kubah Masjid Di Cilegon [Bahan Enamel, GRC] maka telah pas anda berada hala..."
+title: 'Jual Kubah Masjid Di Cilegon [Bahan Enamel, GRC]'
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Cilegon [Bahan Enamel, GRC]. Jika anda sedang mencari
+  Jual Kubah Masjid Di Cilegon [Bahan Enamel, GRC] maka telah pas anda berada
+  hala...
 ---
 
 **Jual Kubah Masjid Di Cilegon \[Bahan Enamel, GRC\]** – Kami yakin bila anda seorang muslim anda tahu bahwasanya tipe bangunan mesjid yang ada di Indonesia ini umumnya mengaplikasikan kubah sebagai ciri khas ataupun pertanda apabila itu adalah masjid. Meskipun motif dan juga bahan dari pembangunan kubah itu sendiri berbeda-beda akan tetapi hampir keseluruhan mesjid menggunakan kubah sebagai ciri khasnya. apabila kita telusuri asal muasal kubah ini sebagai bangunan khusus pada mesjid karenanya kita tidak akan menjumpai ini ada dari semenjak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita temukan bangunan kubah ini yaitu warisan dari arsitektur bizantium dan hingga hari ini kubah sudah menjadi simbol pada sebuah bangunan masjid. Kita bisa mengetahui jika masjid tidak menggunakan kubah maka secara umum kaum muslimin tidak dapat mengenalnya jika itu adalah mesjid. Tujuan penerapan kubah pada masjid juga adalah supaya kaum muslimin gampang untuk menemukan bangunan masjid yakni bangunan yang ada kubah di atasnya.

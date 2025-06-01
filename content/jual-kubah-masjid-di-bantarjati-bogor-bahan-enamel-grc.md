@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Bantarjati Bogor [Bahan Enamel, GRC]"
-date: "2024-06-05"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Bantarjati Bogor [Bahan Enamel, GRC]. Jika anda sedang mencari Jual Kubah Masjid Di Bantarjati Bogor [Bahan Enamel, GRC] maka sudah pa..."
+title: 'Jual Kubah Masjid Di Bantarjati Bogor [Bahan Enamel, GRC]'
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Bantarjati Bogor [Bahan Enamel, GRC]. Jika anda sedang
+  mencari Jual Kubah Masjid Di Bantarjati Bogor [Bahan Enamel, GRC] maka sudah
+  pa...
 ---
 
 **Jual Kubah Masjid Di Bantarjati Bogor \[Bahan Enamel, GRC\]** – Apabila anda seorang muslim anda ketahui bahwa jenis bangunan mesjid yang ada di Indonesia ini umumnya memakai kubah sebagai ciri khas maupun petunjuk jikalau itu adalah masjid. Meski motif dan juga bahan dari pembangunan kubah itu sendiri berbeda-beda namun hampir keseluruhan masjid menggunakan kubah sebagai ciri khasnya. kalau kita telusuri asal muasal kubah ini sebagai bangunan khusus pada masjid karenanya kita tidak akan menjumpai ini ada dari sejak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita temukan bangunan kubah ini yakni warisan dari arsitektur bizantium dan sd hari ini kubah sudah menjadi simbol pada sebuah bangunan mesjid. Kita dapat merasakan seandainya masjid tdk menggunakan kubah maka umumnya kaum muslimin tidak bisa mengenalnya jikalau itu adalah masjid. Tujuan pemakaian kubah pada mesjid juga ialah agar kaum muslimin gampang untuk menemukan bangunan mesjid yaitu bangunan yang ada kubah di atasnya.

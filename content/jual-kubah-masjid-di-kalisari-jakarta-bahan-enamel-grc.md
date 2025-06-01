@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Kalisari Jakarta [Bahan Enamel, GRC]"
-date: "2024-06-02"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Kalisari Jakarta [Bahan Enamel, GRC]. Sekiranya anda sedang mencari Jual Kubah Masjid Di Kalisari Jakarta [Bahan Enamel, GRC] karenany..."
+title: 'Jual Kubah Masjid Di Kalisari Jakarta [Bahan Enamel, GRC]'
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Kalisari Jakarta [Bahan Enamel, GRC]. Sekiranya anda
+  sedang mencari Jual Kubah Masjid Di Kalisari Jakarta [Bahan Enamel, GRC]
+  karenany...
 ---
 
 **Jual Kubah Masjid Di Kalisari Jakarta \[Bahan Enamel, GRC\]** – Jika anda seorang muslim anda ketahui bahwa tipe bangunan masjid yang ada di Indonesia ini biasanya menggunakan kubah sebagai ciri khas maupun pertanda jika itu ialah mesjid. Meskipun design dan juga bahan dari pembangunan kubah itu sendiri berlainan namun hampir keseluruhan masjid memakai kubah sebagai ciri khasnya. jika kita telusuri asal muasal kubah ini sebagai bangunan khusus pada masjid maka kita tidak akan menjumpai ini ada dari semenjak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita dapatkan bangunan kubah ini merupakan warisan dari arsitektur bizantium dan hingga hari ini kubah telah menjadi simbol pada sebuah bangunan mesjid. Kita dapat mengetahui bila mesjid tidak memakai kubah karenanya secara umum kaum muslimin tdk bisa mengenalnya jika itu yakni masjid. Tujuan penerapan kubah pada masjid juga yakni agar kaum muslimin gampang untuk menemukan bangunan masjid yaitu bangunan yang ada kubah di atasnya.

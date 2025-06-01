@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Bungursari Purwakarta [Bahan Enamel, GRC]"
-date: "2024-06-16"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Bungursari Purwakarta [Bahan Enamel, GRC]. Apabila anda sedang mencari Jual Kubah Masjid Di Bungursari Purwakarta [Bahan Enamel, GRC]..."
+title: 'Jual Kubah Masjid Di Bungursari Purwakarta [Bahan Enamel, GRC]'
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Bungursari Purwakarta [Bahan Enamel, GRC]. Apabila anda
+  sedang mencari Jual Kubah Masjid Di Bungursari Purwakarta [Bahan Enamel,
+  GRC]...
 ---
 
 **Jual Kubah Masjid Di Bungursari Purwakarta \[Bahan Enamel, GRC\]** – Apabila anda seorang muslim anda tahu bahwa tipe bangunan mesjid yang ada di Indonesia ini biasanya memakai kubah sebagai ciri khas ataupun tanda jika itu adalah masjid. Walaupun model dan juga bahan dari pembangunan kubah itu sendiri berbeda-beda tapi hampir keseluruhan mesjid memakai kubah sebagai ciri khasnya. jika kita telusuri asal muasal kubah ini sebagai bangunan khusus pada masjid karenanya kita tdk akan menjumpai ini ada dari sejak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita peroleh bangunan kubah ini yakni warisan dari arsitektur bizantium dan sampai hari ini kubah sudah menjadi simbol pada sebuah bangunan masjid. Kita bisa merasakan bila masjid tidak menerapkan kubah maka lazimnya kaum muslimin tidak dapat mengenalnya kalau itu ialah mesjid. Tujuan penggunaan kubah pada mesjid juga yaitu supaya kaum muslimin gampang untuk menemukan bangunan masjid yaitu bangunan yang ada kubah di atasnya.

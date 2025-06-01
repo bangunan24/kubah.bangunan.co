@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Glodok Jakarta [Bahan Enamel, GRC]"
-date: "2024-06-04"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Glodok Jakarta [Bahan Enamel, GRC]. Jikalau anda sedang mencari Jual Kubah Masjid Di Glodok Jakarta [Bahan Enamel, GRC] maka telah tep..."
+title: 'Jual Kubah Masjid Di Glodok Jakarta [Bahan Enamel, GRC]'
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Glodok Jakarta [Bahan Enamel, GRC]. Jikalau anda sedang
+  mencari Jual Kubah Masjid Di Glodok Jakarta [Bahan Enamel, GRC] maka telah
+  tep...
 ---
 
 **Jual Kubah Masjid Di Glodok Jakarta \[Bahan Enamel, GRC\]** – Apabila anda seorang muslim anda ketahui bahwa tipe bangunan mesjid yang ada di Indonesia ini umumnya memakai kubah sebagai ciri khas maupun tanda apabila itu adalah mesjid. Walaupun model dan juga bahan dari pembangunan kubah itu sendiri berlainan akan tetapi hampir keseluruhan mesjid memakai kubah sebagai ciri khasnya. kalau kita telusuri asal muasal kubah ini sebagai bangunan khusus pada mesjid karenanya kita tidak akan menjumpai ini ada dari semenjak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita peroleh bangunan kubah ini yakni warisan dari arsitektur bizantium dan sampai hari ini kubah sudah menjadi simbol pada sebuah bangunan mesjid. Kita dapat merasakan bila mesjid tdk memakai kubah maka umumnya kaum muslimin tdk dapat mengenalnya jika itu yakni mesjid. Tujuan penerapan kubah pada masjid juga ialah agar kaum muslimin gampang untuk menemukan bangunan masjid yakni bangunan yang ada kubah di atasnya.

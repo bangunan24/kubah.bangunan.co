@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Serang Banten [Bahan Enamel, GRC]"
-date: "2024-06-24"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Serang Banten [Bahan Enamel, GRC]. Sekiranya anda sedang mencari Jual Kubah Masjid Di Serang Banten [Bahan Enamel, GRC] maka telah ide..."
+title: 'Jual Kubah Masjid Di Serang Banten [Bahan Enamel, GRC]'
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Serang Banten [Bahan Enamel, GRC]. Sekiranya anda sedang
+  mencari Jual Kubah Masjid Di Serang Banten [Bahan Enamel, GRC] maka telah
+  ide...
 ---
 
 **Jual Kubah Masjid Di Serang Banten \[Bahan Enamel, GRC\]** – Apabila anda seorang muslim anda ketahui bahwa jenis bangunan mesjid yang ada di Indonesia ini lazimnya memakai kubah sebagai ciri khas maupun pertanda kalau itu ialah masjid. Meski motif dan juga bahan dari pembangunan kubah itu sendiri tidak sama tapi hampir keseluruhan masjid menerapkan kubah sebagai ciri khasnya. apabila kita telusuri asal muasal kubah ini sebagai bangunan khusus pada masjid maka kita tidak akan menjumpai ini ada dari semenjak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita dapatkan bangunan kubah ini ialah warisan dari arsitektur bizantium dan hingga hari ini kubah telah menjadi simbol pada sebuah bangunan masjid. Kita dapat mengetahui seandainya mesjid tidak menggunakan kubah karenanya umumnya kaum muslimin tdk dapat mengenalnya jika itu adalah masjid. Tujuan pemakaian kubah pada mesjid juga ialah supaya kaum muslimin gampang untuk menemukan bangunan mesjid yaitu bangunan yang ada kubah di atasnya.
