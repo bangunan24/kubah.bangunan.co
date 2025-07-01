@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Kampung Tengah Jakarta [Bahan Enamel, GRC]"
-date: "2024-07-22"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Kampung Tengah Jakarta [Bahan Enamel, GRC]. Bila anda sedang mencari Jual Kubah Masjid Di Kampung Tengah Jakarta [Bahan Enamel, GRC] k..."
+title: 'Jual Kubah Masjid Di Kampung Tengah Jakarta [Bahan Enamel, GRC]'
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Kampung Tengah Jakarta [Bahan Enamel, GRC]. Bila anda
+  sedang mencari Jual Kubah Masjid Di Kampung Tengah Jakarta [Bahan Enamel, GRC]
+  k...
 ---
 
 **Jual Kubah Masjid Di Kampung Tengah Jakarta \[Bahan Enamel, GRC\]** – Apabila anda seorang muslim anda ketahui bahwa tipe bangunan masjid yang ada di Indonesia ini umumnya memakai kubah sebagai ciri khas maupun pertanda kalau itu merupakan masjid. Meskipun design dan juga bahan dari pembangunan kubah itu sendiri berlainan tapi hampir keseluruhan mesjid memakai kubah sebagai ciri khasnya. bila kita telusuri asal muasal kubah ini sebagai bangunan khusus pada masjid karenanya kita tidak akan menjumpai ini ada dari sejak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita dapatkan bangunan kubah ini yakni warisan dari arsitektur bizantium dan sampai hari ini kubah telah menjadi simbol pada sebuah bangunan mesjid. Kita dapat merasakan kalau masjid tdk menerapkan kubah maka umumnya kaum muslimin tdk bisa mengenalnya apabila itu ialah mesjid. Tujuan pemakaian kubah pada masjid juga yaitu supaya kaum muslimin gampang untuk menemukan bangunan mesjid yaitu bangunan yang ada kubah di atasnya.

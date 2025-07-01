@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Subang [Bahan Enamel, GRC]"
-date: "2024-07-21"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Subang [Bahan Enamel, GRC]. Sekiranya anda sedang mencari Jual Kubah Masjid Di Subang [Bahan Enamel, GRC] karenanya telah tepat anda b..."
+title: 'Jual Kubah Masjid Di Subang [Bahan Enamel, GRC]'
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Subang [Bahan Enamel, GRC]. Sekiranya anda sedang mencari
+  Jual Kubah Masjid Di Subang [Bahan Enamel, GRC] karenanya telah tepat anda
+  b...
 ---
 
 **Jual Kubah Masjid Di Subang \[Bahan Enamel, GRC\]** – Jika anda seorang muslim anda tau bahwa jenis bangunan mesjid yang ada di Indonesia ini umumnya menggunakan kubah sebagai ciri khas ataupun petunjuk jika itu ialah masjid. Meski motif dan juga bahan dari pembangunan kubah itu sendiri berlainan namun hampir keseluruhan mesjid memakai kubah sebagai ciri khasnya. kalau kita telusuri asal muasal kubah ini sebagai bangunan khusus pada mesjid karenanya kita tdk akan menjumpai ini ada dari sejak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita peroleh bangunan kubah ini yaitu warisan dari arsitektur bizantium dan sd hari ini kubah sudah menjadi simbol pada sebuah bangunan masjid. Kita dapat mengetahui jika mesjid tidak memakai kubah maka lazimnya kaum muslimin tdk bisa mengenalnya jika itu ialah mesjid. Tujuan pemakaian kubah pada mesjid juga yakni agar kaum muslimin gampang untuk menemukan bangunan mesjid yaitu bangunan yang ada kubah di atasnya.

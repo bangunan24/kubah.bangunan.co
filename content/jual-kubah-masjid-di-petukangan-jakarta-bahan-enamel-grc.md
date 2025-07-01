@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Petukangan Jakarta [Bahan Enamel, GRC]"
-date: "2024-07-16"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Petukangan Jakarta [Bahan Enamel, GRC]. Bila anda sedang mencari Jual Kubah Masjid Di Petukangan Jakarta [Bahan Enamel, GRC] karenanya..."
+title: 'Jual Kubah Masjid Di Petukangan Jakarta [Bahan Enamel, GRC]'
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Petukangan Jakarta [Bahan Enamel, GRC]. Bila anda sedang
+  mencari Jual Kubah Masjid Di Petukangan Jakarta [Bahan Enamel, GRC]
+  karenanya...
 ---
 
 **Jual Kubah Masjid Di Petukangan Jakarta \[Bahan Enamel, GRC\]** – Apabila anda seorang muslim anda tahu bahwasanya tipe bangunan mesjid yang ada di Indonesia ini lazimnya memakai kubah sebagai ciri khas ataupun pertanda jika itu merupakan masjid. Meski design dan juga bahan dari pembangunan kubah itu sendiri berlainan melainkan hampir keseluruhan mesjid menggunakan kubah sebagai ciri khasnya. sekiranya kita telusuri asal muasal kubah ini sebagai bangunan khusus pada masjid maka kita tdk akan menjumpai ini ada dari semenjak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita temukan bangunan kubah ini ialah warisan dari arsitektur bizantium dan sd hari ini kubah sudah menjadi simbol pada sebuah bangunan mesjid. Kita dapat mengetahui bila mesjid tidak menerapkan kubah maka lazimnya kaum muslimin tidak dapat mengenalnya jika itu adalah mesjid. Tujuan pemakaian kubah pada masjid juga adalah supaya kaum muslimin mudah untuk menemukan bangunan mesjid yaitu bangunan yang ada kubah di atasnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Batujaya Karawang [Bahan Enamel, GRC]"
-date: "2024-07-11"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Batujaya Karawang [Bahan Enamel, GRC]. Jikalau anda sedang mencari Jual Kubah Masjid Di Batujaya Karawang [Bahan Enamel, GRC] karenany..."
+title: 'Jual Kubah Masjid Di Batujaya Karawang [Bahan Enamel, GRC]'
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Batujaya Karawang [Bahan Enamel, GRC]. Jikalau anda
+  sedang mencari Jual Kubah Masjid Di Batujaya Karawang [Bahan Enamel, GRC]
+  karenany...
 ---
 
 **Jual Kubah Masjid Di Batujaya Karawang \[Bahan Enamel, GRC\]** – Jika anda seorang muslim anda ketahui bahwa macam bangunan masjid yang ada di Indonesia ini umumnya mengaplikasikan kubah sebagai ciri khas maupun pertanda jika itu adalah masjid. Meski motif dan juga bahan dari pembangunan kubah itu sendiri berlainan namun hampir keseluruhan masjid memakai kubah sebagai ciri khasnya. kalau kita telusuri asal muasal kubah ini sebagai bangunan khusus pada mesjid karenanya kita tdk akan menjumpai ini ada dari semenjak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita temukan bangunan kubah ini adalah warisan dari arsitektur bizantium dan sampai hari ini kubah sudah menjadi simbol pada sebuah bangunan masjid. Kita dapat mengetahui kalau masjid tidak memakai kubah maka secara umum kaum muslimin tdk dapat mengenalnya jika itu yakni masjid. Tujuan penerapan kubah pada masjid juga adalah agar kaum muslimin mudah untuk menemukan bangunan masjid yakni bangunan yang ada kubah di atasnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Setu Jakarta [Bahan Enamel, GRC]"
-date: "2024-07-15"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Setu Jakarta [Bahan Enamel, GRC]. Kalau anda sedang mencari Jual Kubah Masjid Di Setu Jakarta [Bahan Enamel, GRC] maka sudah tepat and..."
+title: 'Jual Kubah Masjid Di Setu Jakarta [Bahan Enamel, GRC]'
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Setu Jakarta [Bahan Enamel, GRC]. Kalau anda sedang
+  mencari Jual Kubah Masjid Di Setu Jakarta [Bahan Enamel, GRC] maka sudah tepat
+  and...
 ---
 
 **Jual Kubah Masjid Di Setu Jakarta \[Bahan Enamel, GRC\]** – Jika anda seorang muslim anda tau bahwa tipe bangunan masjid yang ada di Indonesia ini biasanya menggunakan kubah sebagai ciri khas ataupun pertanda jika itu merupakan masjid. Meski model dan juga bahan dari pembangunan kubah itu sendiri berlainan tapi hampir keseluruhan masjid memakai kubah sebagai ciri khasnya. jikalau kita telusuri asal muasal kubah ini sebagai bangunan khusus pada mesjid maka kita tidak akan menjumpai ini ada dari sejak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita peroleh bangunan kubah ini yaitu warisan dari arsitektur bizantium dan sampai hari ini kubah sudah menjadi simbol pada sebuah bangunan masjid. Kita bisa mengetahui seandainya mesjid tidak memakai kubah karenanya secara umum kaum muslimin tdk bisa mengenalnya apabila itu merupakan mesjid. Tujuan penerapan kubah pada mesjid juga yaitu agar kaum muslimin mudah untuk menemukan bangunan masjid yakni bangunan yang ada kubah di atasnya.

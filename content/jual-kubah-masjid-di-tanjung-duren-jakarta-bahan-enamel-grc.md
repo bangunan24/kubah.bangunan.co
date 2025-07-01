@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Tanjung Duren Jakarta [Bahan Enamel, GRC]"
-date: "2024-07-01"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Tanjung Duren Jakarta [Bahan Enamel, GRC]. Bila anda sedang mencari Jual Kubah Masjid Di Tanjung Duren Jakarta [Bahan Enamel, GRC] mak..."
+title: 'Jual Kubah Masjid Di Tanjung Duren Jakarta [Bahan Enamel, GRC]'
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Tanjung Duren Jakarta [Bahan Enamel, GRC]. Bila anda
+  sedang mencari Jual Kubah Masjid Di Tanjung Duren Jakarta [Bahan Enamel, GRC]
+  mak...
 ---
 
 **Jual Kubah Masjid Di Tanjung Duren Jakarta \[Bahan Enamel, GRC\]** – Apabila anda seorang muslim anda tau bahwa jenis bangunan masjid yang ada di Indonesia ini lazimnya memakai kubah sebagai ciri khas maupun petunjuk jika itu ialah masjid. Walaupun design dan juga bahan dari pembangunan kubah itu sendiri tidak sama akan tetapi hampir keseluruhan mesjid menggunakan kubah sebagai ciri khasnya. bila kita telusuri asal muasal kubah ini sebagai bangunan khusus pada mesjid maka kita tidak akan menjumpai ini ada dari sejak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita temukan bangunan kubah ini merupakan warisan dari arsitektur bizantium dan hingga hari ini kubah sudah menjadi simbol pada sebuah bangunan masjid. Kita dapat merasakan sekiranya masjid tidak memakai kubah karenanya lazimnya kaum muslimin tdk bisa mengenalnya apabila itu yakni mesjid. Tujuan penggunaan kubah pada masjid juga yaitu agar kaum muslimin gampang untuk menemukan bangunan masjid yaitu bangunan yang ada kubah di atasnya.

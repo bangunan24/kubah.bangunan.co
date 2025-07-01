@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Galur Jakarta [Bahan Enamel, GRC]"
-date: "2024-07-02"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Galur Jakarta [Bahan Enamel, GRC]. Bila anda sedang mencari Jual Kubah Masjid Di Galur Jakarta [Bahan Enamel, GRC] karenanya sudah pas..."
+title: 'Jual Kubah Masjid Di Galur Jakarta [Bahan Enamel, GRC]'
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Galur Jakarta [Bahan Enamel, GRC]. Bila anda sedang
+  mencari Jual Kubah Masjid Di Galur Jakarta [Bahan Enamel, GRC] karenanya sudah
+  pas...
 ---
 
 **Jual Kubah Masjid Di Galur Jakarta \[Bahan Enamel, GRC\]** – Jika anda seorang muslim anda ketahui bahwasanya tipe bangunan mesjid yang ada di Indonesia ini lazimnya mengaplikasikan kubah sebagai ciri khas maupun pertanda kalau itu adalah masjid. Walaupun motif dan juga bahan dari pembangunan kubah itu sendiri berlainan melainkan hampir keseluruhan mesjid menggunakan kubah sebagai ciri khasnya. sekiranya kita telusuri asal muasal kubah ini sebagai bangunan khusus pada masjid karenanya kita tidak akan menjumpai ini ada dari semenjak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita dapatkan bangunan kubah ini merupakan warisan dari arsitektur bizantium dan hingga hari ini kubah telah menjadi simbol pada sebuah bangunan masjid. Kita dapat merasakan jikalau masjid tidak memakai kubah karenanya secara umum kaum muslimin tidak bisa mengenalnya bila itu merupakan mesjid. Tujuan penerapan kubah pada mesjid juga yaitu agar kaum muslimin gampang untuk menemukan bangunan mesjid yaitu bangunan yang ada kubah di atasnya.
