@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Pejagalan Jakarta [Bahan Enamel, GRC]"
-date: "2024-08-22"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Pejagalan Jakarta [Bahan Enamel, GRC]. Jika anda sedang mencari Jual Kubah Masjid Di Pejagalan Jakarta [Bahan Enamel, GRC] karenanya s..."
+title: 'Jual Kubah Masjid Di Pejagalan Jakarta [Bahan Enamel, GRC]'
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Pejagalan Jakarta [Bahan Enamel, GRC]. Jika anda sedang
+  mencari Jual Kubah Masjid Di Pejagalan Jakarta [Bahan Enamel, GRC] karenanya
+  s...
 ---
 
 **Jual Kubah Masjid Di Pejagalan Jakarta \[Bahan Enamel, GRC\]** – Jika anda seorang muslim anda ketahui bahwasanya tipe bangunan mesjid yang ada di Indonesia ini biasanya memakai kubah sebagai ciri khas maupun tanda bila itu ialah mesjid. Meski design dan juga bahan dari pembangunan kubah itu sendiri tidak sama tapi hampir keseluruhan masjid menggunakan kubah sebagai ciri khasnya. seandainya kita telusuri asal muasal kubah ini sebagai bangunan khusus pada masjid maka kita tdk akan menjumpai ini ada dari sejak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita dapatkan bangunan kubah ini yakni warisan dari arsitektur bizantium dan sd hari ini kubah telah menjadi simbol pada sebuah bangunan masjid. Kita dapat mengetahui sekiranya mesjid tidak memakai kubah maka lazimnya kaum muslimin tdk bisa mengenalnya jika itu merupakan mesjid. Tujuan penggunaan kubah pada mesjid juga yakni supaya kaum muslimin mudah untuk menemukan bangunan masjid yakni bangunan yang ada kubah di atasnya.

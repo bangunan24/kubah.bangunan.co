@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Koja Jakarta [Bahan Enamel, GRC]"
-date: "2024-08-06"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Koja Jakarta [Bahan Enamel, GRC]. Bila anda sedang mencari Jual Kubah Masjid Di Koja Jakarta [Bahan Enamel, GRC] maka sudah ideal anda..."
+title: 'Jual Kubah Masjid Di Koja Jakarta [Bahan Enamel, GRC]'
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Koja Jakarta [Bahan Enamel, GRC]. Bila anda sedang
+  mencari Jual Kubah Masjid Di Koja Jakarta [Bahan Enamel, GRC] maka sudah ideal
+  anda...
 ---
 
 **Jual Kubah Masjid Di Koja Jakarta \[Bahan Enamel, GRC\]** – Jika anda seorang muslim anda tahu bahwa jenis bangunan masjid yang ada di Indonesia ini lazimnya memakai kubah sebagai ciri khas maupun pertanda jika itu merupakan masjid. Meskipun model dan juga bahan dari pembangunan kubah itu sendiri berlainan melainkan hampir keseluruhan masjid memakai kubah sebagai ciri khasnya. sekiranya kita telusuri asal muasal kubah ini sebagai bangunan khusus pada mesjid karenanya kita tdk akan menjumpai ini ada dari sejak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita temukan bangunan kubah ini merupakan warisan dari arsitektur bizantium dan sampai hari ini kubah sudah menjadi simbol pada sebuah bangunan mesjid. Kita bisa mengetahui jika mesjid tidak menggunakan kubah maka lazimnya kaum muslimin tidak dapat mengenalnya bila itu merupakan mesjid. Tujuan penerapan kubah pada mesjid juga ialah supaya kaum muslimin mudah untuk menemukan bangunan masjid yakni bangunan yang ada kubah di atasnya.

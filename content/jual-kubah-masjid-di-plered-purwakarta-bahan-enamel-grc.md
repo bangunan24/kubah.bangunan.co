@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Plered Purwakarta [Bahan Enamel, GRC]"
-date: "2024-08-25"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Plered Purwakarta [Bahan Enamel, GRC]. Sekiranya anda sedang mencari Jual Kubah Masjid Di Plered Purwakarta [Bahan Enamel, GRC] maka t..."
+title: 'Jual Kubah Masjid Di Plered Purwakarta [Bahan Enamel, GRC]'
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Plered Purwakarta [Bahan Enamel, GRC]. Sekiranya anda
+  sedang mencari Jual Kubah Masjid Di Plered Purwakarta [Bahan Enamel, GRC] maka
+  t...
 ---
 
 **Jual Kubah Masjid Di Plered Purwakarta \[Bahan Enamel, GRC\]** – Jika anda seorang muslim anda tau bahwa jenis bangunan masjid yang ada di Indonesia ini biasanya menggunakan kubah sebagai ciri khas maupun petunjuk jika itu merupakan mesjid. Meski model dan juga bahan dari pembangunan kubah itu sendiri tidak sama melainkan hampir keseluruhan masjid memakai kubah sebagai ciri khasnya. bila kita telusuri asal muasal kubah ini sebagai bangunan khusus pada masjid karenanya kita tidak akan menjumpai ini ada dari sejak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita temukan bangunan kubah ini yaitu warisan dari arsitektur bizantium dan hingga hari ini kubah telah menjadi simbol pada sebuah bangunan mesjid. Kita dapat merasakan kalau mesjid tidak menerapkan kubah maka secara umum kaum muslimin tdk dapat mengenalnya kalau itu ialah mesjid. Tujuan pemakaian kubah pada mesjid juga yaitu agar kaum muslimin gampang untuk menemukan bangunan mesjid yakni bangunan yang ada kubah di atasnya.

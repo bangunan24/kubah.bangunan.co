@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Duri Kosambi Jakarta [Bahan Enamel, GRC]"
-date: "2024-08-21"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Duri Kosambi Jakarta [Bahan Enamel, GRC]. Bila anda sedang mencari Jual Kubah Masjid Di Duri Kosambi Jakarta [Bahan Enamel, GRC] maka..."
+title: 'Jual Kubah Masjid Di Duri Kosambi Jakarta [Bahan Enamel, GRC]'
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Duri Kosambi Jakarta [Bahan Enamel, GRC]. Bila anda
+  sedang mencari Jual Kubah Masjid Di Duri Kosambi Jakarta [Bahan Enamel, GRC]
+  maka...
 ---
 
 **Jual Kubah Masjid Di Duri Kosambi Jakarta \[Bahan Enamel, GRC\]** – Jika anda seorang muslim anda tau bahwasanya tipe bangunan masjid yang ada di Indonesia ini umumnya menggunakan kubah sebagai ciri khas ataupun tanda jika itu merupakan mesjid. Walaupun design dan juga bahan dari pembangunan kubah itu sendiri berlainan akan tetapi hampir keseluruhan mesjid memakai kubah sebagai ciri khasnya. kalau kita telusuri asal muasal kubah ini sebagai bangunan khusus pada masjid maka kita tidak akan menjumpai ini ada dari semenjak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita dapatkan bangunan kubah ini yaitu warisan dari arsitektur bizantium dan sampai hari ini kubah telah menjadi simbol pada sebuah bangunan mesjid. Kita dapat merasakan sekiranya mesjid tidak menggunakan kubah maka umumnya kaum muslimin tdk dapat mengenalnya jika itu yakni mesjid. Tujuan penerapan kubah pada masjid juga yakni agar kaum muslimin mudah untuk menemukan bangunan masjid yakni bangunan yang ada kubah di atasnya.

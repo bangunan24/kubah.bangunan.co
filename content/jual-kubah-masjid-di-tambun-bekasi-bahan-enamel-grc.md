@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Tambun Bekasi [Bahan Enamel, GRC]"
-date: "2024-08-14"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Tambun Bekasi [Bahan Enamel, GRC]. Bila anda sedang mencari Jual Kubah Masjid Di Tambun Bekasi [Bahan Enamel, GRC] maka telah pas anda..."
+title: 'Jual Kubah Masjid Di Tambun Bekasi [Bahan Enamel, GRC]'
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Tambun Bekasi [Bahan Enamel, GRC]. Bila anda sedang
+  mencari Jual Kubah Masjid Di Tambun Bekasi [Bahan Enamel, GRC] maka telah pas
+  anda...
 ---
 
 **Jual Kubah Masjid Di Tambun Bekasi \[Bahan Enamel, GRC\]** – Jika anda seorang muslim anda tau bahwa tipe bangunan masjid yang ada di Indonesia ini lazimnya memakai kubah sebagai ciri khas maupun tanda apabila itu merupakan masjid. Meski motif dan juga bahan dari pembangunan kubah itu sendiri tidak sama namun hampir keseluruhan mesjid menerapkan kubah sebagai ciri khasnya. kalau kita telusuri asal muasal kubah ini sebagai bangunan khusus pada mesjid maka kita tdk akan menjumpai ini ada dari sejak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita dapatkan bangunan kubah ini yaitu warisan dari arsitektur bizantium dan sd hari ini kubah sudah menjadi simbol pada sebuah bangunan masjid. Kita dapat mengetahui kalau mesjid tdk menggunakan kubah karenanya umumnya kaum muslimin tidak dapat mengenalnya bila itu adalah mesjid. Tujuan pengaplikasian kubah pada masjid juga adalah supaya kaum muslimin gampang untuk menemukan bangunan mesjid yakni bangunan yang ada kubah di atasnya.

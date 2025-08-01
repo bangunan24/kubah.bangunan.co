@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Bukit Duri Jakarta [Bahan Enamel, GRC]"
-date: "2024-08-04"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Bukit Duri Jakarta [Bahan Enamel, GRC]. Bila anda sedang mencari Jual Kubah Masjid Di Bukit Duri Jakarta [Bahan Enamel, GRC] maka tela..."
+title: 'Jual Kubah Masjid Di Bukit Duri Jakarta [Bahan Enamel, GRC]'
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Bukit Duri Jakarta [Bahan Enamel, GRC]. Bila anda sedang
+  mencari Jual Kubah Masjid Di Bukit Duri Jakarta [Bahan Enamel, GRC] maka
+  tela...
 ---
 
 **Jual Kubah Masjid Di Bukit Duri Jakarta \[Bahan Enamel, GRC\]** – Apabila anda seorang muslim anda tau bahwasanya jenis bangunan masjid yang ada di Indonesia ini lazimnya memakai kubah sebagai ciri khas maupun pertanda kalau itu ialah mesjid. Meskipun motif dan juga bahan dari pembangunan kubah itu sendiri berbeda-beda namun hampir keseluruhan mesjid memakai kubah sebagai ciri khasnya. jika kita telusuri asal muasal kubah ini sebagai bangunan khusus pada masjid maka kita tidak akan menjumpai ini ada dari semenjak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita temukan bangunan kubah ini adalah warisan dari arsitektur bizantium dan sd hari ini kubah sudah menjadi simbol pada sebuah bangunan mesjid. Kita bisa merasakan seandainya mesjid tidak menggunakan kubah karenanya umumnya kaum muslimin tdk bisa mengenalnya kalau itu merupakan masjid. Tujuan pengaplikasian kubah pada mesjid juga yaitu supaya kaum muslimin mudah untuk menemukan bangunan mesjid yakni bangunan yang ada kubah di atasnya.

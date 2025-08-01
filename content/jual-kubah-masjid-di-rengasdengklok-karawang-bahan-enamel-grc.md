@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Rengasdengklok Karawang [Bahan Enamel, GRC]"
-date: "2024-08-05"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Rengasdengklok Karawang [Bahan Enamel, GRC]. Jikalau anda sedang mencari Jual Kubah Masjid Di Rengasdengklok Karawang [Bahan Enamel, GR..."
+title: 'Jual Kubah Masjid Di Rengasdengklok Karawang [Bahan Enamel, GRC]'
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Rengasdengklok Karawang [Bahan Enamel, GRC]. Jikalau anda
+  sedang mencari Jual Kubah Masjid Di Rengasdengklok Karawang [Bahan Enamel,
+  GR...
 ---
 
 **Jual Kubah Masjid Di Rengasdengklok Karawang \[Bahan Enamel, GRC\]** – Jika anda seorang muslim anda tahu bahwa jenis bangunan masjid yang ada di Indonesia ini umumnya mengaplikasikan kubah sebagai ciri khas ataupun petunjuk apabila itu adalah masjid. Walaupun motif dan juga bahan dari pembangunan kubah itu sendiri berlainan akan tetapi hampir keseluruhan mesjid memakai kubah sebagai ciri khasnya. jika kita telusuri asal muasal kubah ini sebagai bangunan khusus pada mesjid karenanya kita tdk akan menjumpai ini ada dari semenjak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita dapatkan bangunan kubah ini adalah warisan dari arsitektur bizantium dan sd hari ini kubah telah menjadi simbol pada sebuah bangunan mesjid. Kita bisa mengetahui bila mesjid tidak menerapkan kubah karenanya secara umum kaum muslimin tidak bisa mengenalnya kalau itu merupakan mesjid. Tujuan pemakaian kubah pada masjid juga yaitu agar kaum muslimin mudah untuk menemukan bangunan mesjid yaitu bangunan yang ada kubah di atasnya.

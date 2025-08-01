@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Karet Jakarta [Bahan Enamel, GRC]"
-date: "2024-08-17"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Karet Jakarta [Bahan Enamel, GRC]. Bila anda sedang mencari Jual Kubah Masjid Di Karet Jakarta [Bahan Enamel, GRC] maka sudah tepat an..."
+title: 'Jual Kubah Masjid Di Karet Jakarta [Bahan Enamel, GRC]'
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Karet Jakarta [Bahan Enamel, GRC]. Bila anda sedang
+  mencari Jual Kubah Masjid Di Karet Jakarta [Bahan Enamel, GRC] maka sudah
+  tepat an...
 ---
 
 **Jual Kubah Masjid Di Karet Jakarta \[Bahan Enamel, GRC\]** – Apabila anda seorang muslim anda tau bahwa jenis bangunan mesjid yang ada di Indonesia ini biasanya memakai kubah sebagai ciri khas ataupun tanda jikalau itu ialah masjid. Meskipun design dan juga bahan dari pembangunan kubah itu sendiri berbeda-beda akan tetapi hampir keseluruhan masjid menggunakan kubah sebagai ciri khasnya. kalau kita telusuri asal muasal kubah ini sebagai bangunan khusus pada mesjid maka kita tdk akan menjumpai ini ada dari semenjak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita dapatkan bangunan kubah ini adalah warisan dari arsitektur bizantium dan sd hari ini kubah telah menjadi simbol pada sebuah bangunan masjid. Kita dapat merasakan sekiranya masjid tdk memakai kubah karenanya secara umum kaum muslimin tidak dapat mengenalnya jika itu adalah masjid. Tujuan pengaplikasian kubah pada masjid juga ialah agar kaum muslimin mudah untuk menemukan bangunan mesjid yaitu bangunan yang ada kubah di atasnya.

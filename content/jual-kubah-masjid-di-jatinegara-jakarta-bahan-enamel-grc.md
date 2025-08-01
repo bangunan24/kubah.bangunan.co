@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Jatinegara Jakarta [Bahan Enamel, GRC]"
-date: "2024-08-18"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Jatinegara Jakarta [Bahan Enamel, GRC]. Seandainya anda sedang mencari Jual Kubah Masjid Di Jatinegara Jakarta [Bahan Enamel, GRC] kar..."
+title: 'Jual Kubah Masjid Di Jatinegara Jakarta [Bahan Enamel, GRC]'
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Jatinegara Jakarta [Bahan Enamel, GRC]. Seandainya anda
+  sedang mencari Jual Kubah Masjid Di Jatinegara Jakarta [Bahan Enamel, GRC]
+  kar...
 ---
 
 **Jual Kubah Masjid Di Jatinegara Jakarta \[Bahan Enamel, GRC\]** – Apabila anda seorang muslim anda tau bahwa tipe bangunan mesjid yang ada di Indonesia ini umumnya mengaplikasikan kubah sebagai ciri khas maupun tanda jika itu adalah mesjid. Meskipun design dan juga bahan dari pembangunan kubah itu sendiri berlainan tapi hampir keseluruhan mesjid menggunakan kubah sebagai ciri khasnya. bila kita telusuri asal muasal kubah ini sebagai bangunan khusus pada mesjid maka kita tidak akan menjumpai ini ada dari sejak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita peroleh bangunan kubah ini ialah warisan dari arsitektur bizantium dan sd hari ini kubah telah menjadi simbol pada sebuah bangunan masjid. Kita dapat merasakan sekiranya masjid tdk menerapkan kubah karenanya lazimnya kaum muslimin tidak dapat mengenalnya bila itu ialah masjid. Tujuan pemakaian kubah pada mesjid juga adalah agar kaum muslimin mudah untuk menemukan bangunan masjid yakni bangunan yang ada kubah di atasnya.

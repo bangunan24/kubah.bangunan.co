@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Kedaung Depok [Bahan Enamel, GRC]"
-date: "2024-08-12"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Kedaung Depok [Bahan Enamel, GRC]. Jika anda sedang mencari Jual Kubah Masjid Di Kedaung Depok [Bahan Enamel, GRC] karenanya telah tep..."
+title: 'Jual Kubah Masjid Di Kedaung Depok [Bahan Enamel, GRC]'
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Kedaung Depok [Bahan Enamel, GRC]. Jika anda sedang
+  mencari Jual Kubah Masjid Di Kedaung Depok [Bahan Enamel, GRC] karenanya telah
+  tep...
 ---
 
 **Jual Kubah Masjid Di Kedaung Depok \[Bahan Enamel, GRC\]** – Kami yakin jikalau anda seorang muslim anda tau bahwasanya jenis bangunan masjid yang ada di Indonesia ini umumnya menggunakan kubah sebagai ciri khas ataupun petunjuk jika itu adalah masjid. Meskipun motif dan juga bahan dari pembangunan kubah itu sendiri berlainan namun hampir keseluruhan mesjid menggunakan kubah sebagai ciri khasnya. seandainya kita telusuri asal muasal kubah ini sebagai bangunan khusus pada mesjid maka kita tidak akan menjumpai ini ada dari sejak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita dapatkan bangunan kubah ini ialah warisan dari arsitektur bizantium dan sd hari ini kubah telah menjadi simbol pada sebuah bangunan mesjid. Kita dapat mengetahui bila masjid tdk memakai kubah maka lazimnya kaum muslimin tidak bisa mengenalnya jika itu ialah masjid. Tujuan penggunaan kubah pada mesjid juga yaitu agar kaum muslimin mudah untuk menemukan bangunan masjid yaitu bangunan yang ada kubah di atasnya.
