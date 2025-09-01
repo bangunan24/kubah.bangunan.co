@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Sunter Agung Jakarta [Bahan Enamel, GRC]"
-date: "2024-09-12"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Sunter Agung Jakarta [Bahan Enamel, GRC]. Sekiranya anda sedang mencari Jual Kubah Masjid Di Sunter Agung Jakarta [Bahan Enamel, GRC]..."
+title: 'Jual Kubah Masjid Di Sunter Agung Jakarta [Bahan Enamel, GRC]'
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Sunter Agung Jakarta [Bahan Enamel, GRC]. Sekiranya anda
+  sedang mencari Jual Kubah Masjid Di Sunter Agung Jakarta [Bahan Enamel,
+  GRC]...
 ---
 
 **Jual Kubah Masjid Di Sunter Agung Jakarta \[Bahan Enamel, GRC\]** – Jika anda seorang muslim anda tau bahwasanya tipe bangunan mesjid yang ada di Indonesia ini umumnya menggunakan kubah sebagai ciri khas maupun pertanda jika itu adalah mesjid. Meskipun motif dan juga bahan dari pembangunan kubah itu sendiri tidak sama akan tetapi hampir keseluruhan mesjid menerapkan kubah sebagai ciri khasnya. jikalau kita telusuri asal muasal kubah ini sebagai bangunan khusus pada masjid karenanya kita tidak akan menjumpai ini ada dari semenjak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita dapatkan bangunan kubah ini merupakan warisan dari arsitektur bizantium dan hingga hari ini kubah sudah menjadi simbol pada sebuah bangunan masjid. Kita bisa mengetahui sekiranya masjid tidak menerapkan kubah maka lazimnya kaum muslimin tdk bisa mengenalnya bila itu ialah mesjid. Tujuan penerapan kubah pada masjid juga yakni supaya kaum muslimin mudah untuk menemukan bangunan masjid yaitu bangunan yang ada kubah di atasnya.

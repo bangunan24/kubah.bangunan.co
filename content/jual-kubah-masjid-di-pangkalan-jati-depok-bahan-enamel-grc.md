@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Pangkalan Jati Depok [Bahan Enamel, GRC]"
-date: "2024-09-13"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Pangkalan Jati Depok [Bahan Enamel, GRC]. Seandainya anda sedang mencari Jual Kubah Masjid Di Pangkalan Jati Depok [Bahan Enamel, GRC]..."
+title: 'Jual Kubah Masjid Di Pangkalan Jati Depok [Bahan Enamel, GRC]'
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Pangkalan Jati Depok [Bahan Enamel, GRC]. Seandainya anda
+  sedang mencari Jual Kubah Masjid Di Pangkalan Jati Depok [Bahan Enamel,
+  GRC]...
 ---
 
 **Jual Kubah Masjid Di Pangkalan Jati Depok \[Bahan Enamel, GRC\]** – Jika anda seorang muslim anda ketahui bahwa jenis bangunan mesjid yang ada di Indonesia ini umumnya memakai kubah sebagai ciri khas maupun tanda bila itu merupakan mesjid. Meskipun motif dan juga bahan dari pembangunan kubah itu sendiri berlainan melainkan hampir keseluruhan masjid memakai kubah sebagai ciri khasnya. bila kita telusuri asal muasal kubah ini sebagai bangunan khusus pada mesjid karenanya kita tidak akan menjumpai ini ada dari sejak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita dapatkan bangunan kubah ini adalah warisan dari arsitektur bizantium dan hingga hari ini kubah telah menjadi simbol pada sebuah bangunan mesjid. Kita dapat merasakan jika mesjid tidak menggunakan kubah maka lazimnya kaum muslimin tidak dapat mengenalnya jika itu merupakan masjid. Tujuan penggunaan kubah pada masjid juga adalah agar kaum muslimin mudah untuk menemukan bangunan masjid yakni bangunan yang ada kubah di atasnya.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Kubah Masjid Di Sumur Batu Jakarta [Bahan Enamel, GRC]"
-date: "2024-09-02"
-categories: 
-  - "harga"
-description: "Jual Kubah Masjid Di Sumur Batu Jakarta [Bahan Enamel, GRC]. Sekiranya anda sedang mencari Jual Kubah Masjid Di Sumur Batu Jakarta [Bahan Enamel, GRC] maka..."
+title: 'Jual Kubah Masjid Di Sumur Batu Jakarta [Bahan Enamel, GRC]'
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Jual Kubah Masjid Di Sumur Batu Jakarta [Bahan Enamel, GRC]. Sekiranya anda
+  sedang mencari Jual Kubah Masjid Di Sumur Batu Jakarta [Bahan Enamel, GRC]
+  maka...
 ---
 
 **Jual Kubah Masjid Di Sumur Batu Jakarta \[Bahan Enamel, GRC\]** – Jika anda seorang muslim anda tau bahwasanya tipe bangunan mesjid yang ada di Indonesia ini umumnya menggunakan kubah sebagai ciri khas ataupun petunjuk kalau itu ialah masjid. Meskipun design dan juga bahan dari pembangunan kubah itu sendiri berlainan melainkan hampir keseluruhan mesjid menerapkan kubah sebagai ciri khasnya. jikalau kita telusuri asal muasal kubah ini sebagai bangunan khusus pada masjid karenanya kita tidak akan menjumpai ini ada dari sejak zaman nabi muhammad shalallohu alaihi wasallam. Yang akan kita temukan bangunan kubah ini yaitu warisan dari arsitektur bizantium dan sd hari ini kubah telah menjadi simbol pada sebuah bangunan mesjid. Kita dapat merasakan seandainya masjid tidak menerapkan kubah maka secara umum kaum muslimin tidak bisa mengenalnya kalau itu yakni mesjid. Tujuan pengaplikasian kubah pada mesjid juga ialah agar kaum muslimin gampang untuk menemukan bangunan masjid yaitu bangunan yang ada kubah di atasnya.
