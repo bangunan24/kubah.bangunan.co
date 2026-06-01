@@ -1,6 +1,6 @@
 ---
 title: 'Jual Kubah Masjid Di Sindangsari Bogor [Bahan Enamel, GRC]'
-date: '2025-06-01'
+date: '2026-06-01'
 categories:
   - harga
 description: >-
