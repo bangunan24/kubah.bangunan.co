@@ -1,6 +1,6 @@
 ---
 title: 'Jual Kubah Masjid Di Cibuaya Karawang [Bahan Enamel, GRC]'
-date: '2025-07-01'
+date: '2026-07-01'
 categories:
   - harga
 description: >-
